@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Godsfavour by name
-- 👀 I’m interested in technological advancement 
+- I’m interested in technological advancement 
 - 🌱 I’m currently learning cuber security and web development 
-- 💞️ I’m looking to collaborate on web development 
+- I’m looking to collaborate on web development 
       You can reach to me ...https://wa.me/qr/FA5OEQDQHNW5C1
 - 
 - ⚡ Fun fact: ...
